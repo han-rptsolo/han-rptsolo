@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **maiedwardhan@gmail.com**
 
-- 📄 Know about my experiences [https://docs.google.com/document/d/1ImAFW3hoUicNa7PQT_-dP9kFjG0d3Tr4iVx375EN3dQ/edit?tab=t.0](https://docs.google.com/document/d/1ImAFW3hoUicNa7PQT_-dP9kFjG0d3Tr4iVx375EN3dQ/edit?tab=t.0)
+- 📄 Know about my experiences [file:///C:/Users/maied/Downloads/Resume.pdf](file:///C:/Users/maied/Downloads/Resume.pdf)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
